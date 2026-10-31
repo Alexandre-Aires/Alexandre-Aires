@@ -20,4 +20,4 @@
 
 ### 📫 Contato
 
-[LinkedIn](https://www.linkedin.com/in/alexandre-aires-40006426a/) • [E-mail](mailto:alexandreaires.vicente@gmail.com)
+[LinkedIn](https://www.linkedin.com/in/alexandreairesvicente) • [E-mail](mailto:alexandreaires.vicente@gmail.com)
